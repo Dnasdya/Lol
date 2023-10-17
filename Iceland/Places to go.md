@@ -1,3 +1,6 @@
 - Blue Lagoon
-- Northern Lights
+- Northern Lights - Snæfellsnes, Þingvellir National Park, 
+- Geysir
+- Kerid Crater
+- Gullfoss Waterfall
 - 
